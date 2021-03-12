@@ -1,0 +1,5 @@
+- I’m @zetahvdev
+- I’m interested in learning new technologies to improve my daily work activities and help others make improvements by the use of technology. 
+- I’m currently learning JavaScript, SQL, React.js, node.js, C++, Excel.
+- I’m looking to collaborate on any type of projects that can facilitate their task and improve efficiency as well as seeing result in increasing changes over time. 
+- You can contact me by sending me an email here: zetahv12900@gmail.com 
